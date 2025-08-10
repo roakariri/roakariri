@@ -1,1 +1,6 @@
 # ᜋᜊᜓᜑᜌ᜔, ᜀᜃᜓ'ᜌ᜔ ᜁᜐ ᜎᜋᜅ᜔ ᜑᜋᜃ᜔ ᜈ ᜆᜂ ᜈ ᜑᜒᜈ᜔ᜇᜒ ᜋᜆᜎᜒᜈᜓ ᜉᜒᜇᜓ ᜃᜒᜈᜃᜌ.
+
+
+# Sino nga ba siya 
+## by Sara Geronimo
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3000&pause=250&width=435&lines='Di+ko+inisip+na;mawawala+ka+pa;Akala+ko'y+pang-habang;buhay+na+kapiling+ka;Lahat+na+yata+binigay;para+sa+'yo;Ngunit+parang+may;pagkukulang+pa+ako;Sino+nga+ba+siya+sa+puso+mo;At+kaya+mong+saktan+ang+tulad+ko%3F;Gayong+lahat-lahat+ng+akin;At+pag-ibig+ay+binigay+sa'yo;Sino+nga+ba+siya't+iniwan+mo%3F;Iniwan+mong+bigo+ang+tulad+ko;May+pagkukulang+ba+ako't;Nagagawang+saktan+ang+puso+ko%3F;Kahit+dayain+ang+puso+at+isipan+ko;Damdamin+ko'y+hindi+pa+rin+nagbabago;At+kung+maisip+na+'di+na+siya+ang+'yong+gusto;Magbalik+ka+lang+at+ako'y+naririto;Sino+nga+ba+siya+sa+puso+mo;At+kaya+mong+saktan+ang+tulad+ko%3F;Gayong+lahat-lahat+ng+akin;At+pag-ibig+ay+binigay+sa'yo;Sino+nga+ba+siya't+iniwan+mo%3F;Iniwan+mong+bigo+ang+tulad+ko;May+pagkukulang+ba+ako't;Nagagawang+saktan+ang+puso+ko%3F;Oh%2C+oh-oh;Sino+nga+ba+siya+sa+puso+mo;At+kaya+mong+saktan+ang+tulad+ko%3F;Gayong+lahat-lahat+ng+akin;At+pag-ibig+ay+binigay+sa'yo;Sino+nga+ba+siya't+iniwan+mo%3F;Iniwan+mong+bigo+ang+tulad+ko;May+pagkukulang+ba+ako't;Nagagawang+saktan+ang+puso+ko%3F)](https://git.io/typing-svg) 🎵
